@@ -15,4 +15,4 @@ West Visayas State University
 - Playing online games
 
 
-## just keep moving forward, your bound to succeed eventually.
+## just keep moving forward, your'e bound to succeed eventually.
